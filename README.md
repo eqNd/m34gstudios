@@ -1,4 +1,3 @@
-# m34gstudios
 # Gizlilik Politikası (Privacy Policy)
 
 **Son Güncelleme / Last Updated:** 10 Ekim 2026
